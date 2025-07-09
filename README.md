@@ -1,6 +1,10 @@
 # playlist
-playlist
 
+
+[Golden Record Sounds and Music](https://science.nasa.gov/mission/voyager/golden-record-contents/sounds/)
+
+
+.......
 
 
 [Allah ya baba](https://www.youtube.com/watch?v=0-6k2Cd5hVE)
