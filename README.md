@@ -16,6 +16,8 @@
 
 [Dame Un Grrr](https://www.youtube.com/watch?v=vuMyYFvnTXg)
 
+[ نانسي عجرم - من نظرة](https://www.youtube.com/watch?v=UFn1-pTQ85s)
+
 [‏نانسي عجرم - بدنا نولع الجو](https://www.youtube.com/watch?v=iOP9PYLICK8)
 
 [Yalla](https://www.youtube.com/watch?v=i7wveOu5hkQ)
