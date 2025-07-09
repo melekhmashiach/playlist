@@ -45,6 +45,9 @@
 
 [ששון איפרם שאולוב - תמיד אוהב אותי ](https://www.youtube.com/watch?v=rgSvk335zis)
 
+
+[עדן בן זקן - חיים של](https://www.youtube.com/watch?v=qEEzKfGa1oY)י
+
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
 
 [Mental Powers](https://www.youtube.com/watch?v=f_Rq20mwd7U)
