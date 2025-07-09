@@ -43,6 +43,8 @@
 
 [מור - המבדיל](https://www.youtube.com/watch?v=S_at_rFif8k)
 
+[ששון איפרם שאולוב - תמיד אוהב אותי ](https://www.youtube.com/watch?v=rgSvk335zis)
+
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
 
 [Mental Powers](https://www.youtube.com/watch?v=f_Rq20mwd7U)
