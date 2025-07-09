@@ -15,6 +15,7 @@
 
 [Şımarık](https://www.youtube.com/watch?v=cpp69ghR1IM)
 
+[Kuzu Kuzu](https://www.youtube.com/watch?v=NAHRpEqgcL4) 
 
 ......
 
