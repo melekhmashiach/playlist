@@ -37,7 +37,7 @@
 
 [Aria](https://www.youtube.com/watch?v=QZk3WKJc1ME)
 
-מ[ור - מצד אחד](https://www.youtube.com/watch?v=PGRrq4yP0hw)
+[מור - מצד אחד](https://www.youtube.com/watch?v=PGRrq4yP0hw)
 
 [עדן חסון & מור- אל יקר](https://www.youtube.com/watch?v=QsQsgv1PhNU) 
 
