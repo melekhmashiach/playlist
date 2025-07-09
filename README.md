@@ -45,6 +45,7 @@
 
 [ששון איפרם שאולוב - תמיד אוהב אותי ](https://www.youtube.com/watch?v=rgSvk335zis)
 
+[נסרין קדרי - מאושרת בדרך שלי](https://www.youtube.com/watch?v=ZUE6L63C68k) 
 
 [עדן בן זקן - חיים של](https://www.youtube.com/watch?v=qEEzKfGa1oY)י
 
