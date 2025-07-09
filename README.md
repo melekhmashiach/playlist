@@ -37,6 +37,8 @@
 [Aria](https://www.youtube.com/watch?v=QZk3WKJc1ME)
 
 
+[עדן חסון & מור- אל יקר](https://www.youtube.com/watch?v=QsQsgv1PhNU) 
+
 [מור - המבדיל](https://www.youtube.com/watch?v=S_at_rFif8k)
 
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
