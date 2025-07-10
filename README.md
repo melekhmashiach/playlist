@@ -37,7 +37,9 @@
 
 [Aria](https://www.youtube.com/watch?v=QZk3WKJc1ME)
 
- [עומר אדם & איזי - התעוררתי עם נמר](https://www.youtube.com/watch?v=ucnJWiWFGaQ)
+[איזי - גֻּושְׁפַּנְקָא](https://www.youtube.com/watch?v=o8ArEYZ9G4Y)
+
+[עומר אדם & איזי - התעוררתי עם נמר](https://www.youtube.com/watch?v=ucnJWiWFGaQ)
   
 [סטטיק ובן אל תבורי & נסרין קדרי - חביב אלבי](https://www.youtube.com/watch?v=lYfrKmEYpdA)
 
