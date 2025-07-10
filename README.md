@@ -41,6 +41,8 @@
 
 [סטטיק & עדן חסון - אוי ואבוי](https://www.youtube.com/watch?v=4X0XpX2RXks
 ) 
+
+[עדן חסון - מטפסים על הקירות](https://www.youtube.com/watch?v=L2UV08m0DqY)
  
  [שחר סאול - דובשנייה מארח את אגם בוחבוט ונורוז](https://www.youtube.com/watch?v=0aoNAe3BhAg)
 
