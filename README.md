@@ -37,6 +37,8 @@
 
 [Aria](https://www.youtube.com/watch?v=QZk3WKJc1ME)
 
+  [סטטיק ובן אל תבורי & נסרין קדרי - חביב אלבי](https://www.youtube.com/watch?v=lYfrKmEYpdA)
+
 [מור - מצד אחד](https://www.youtube.com/watch?v=PGRrq4yP0hw)
 
 [עדן חסון & מור- אל יקר](https://www.youtube.com/watch?v=QsQsgv1PhNU) 
