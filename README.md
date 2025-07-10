@@ -39,7 +39,8 @@
 
 
 
- 
+[סטטיק & עדן חסון - אוי ואבוי](https://www.youtube.com/watch?v=4X0XpX2RXks
+) 
  
  [שחר סאול - דובשנייה מארח את אגם בוחבוט ונורוז](https://www.youtube.com/watch?v=0aoNAe3BhAg)
 
@@ -59,7 +60,7 @@
 
 [נסרין קדרי - מאושרת בדרך שלי](https://www.youtube.com/watch?v=ZUE6L63C68k) 
 
-[עדן בן זקן - חיים של](https://www.youtube.com/watch?v=qEEzKfGa1oY)י
+[עדן בן זקן - חיים שלי](https://www.youtube.com/watch?v=qEEzKfGa1oY)
 
 
 [שרית חדד - מאחלת לך - Sarit Hadad - I'm wishing you](https://www.youtube.com/watch?v=7QkhkMRWb28)
