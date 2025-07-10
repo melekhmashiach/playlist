@@ -37,7 +37,9 @@
 
 [Aria](https://www.youtube.com/watch?v=QZk3WKJc1ME)
 
+[עדן בן זקן - הגענו הבנות](https://www.youtube.com/watch?v=MbfNHvxwu_c)
 
+[עדן בן זקן - חמסה ](https://www.youtube.com/watch?v=b3QTszIIMJs)
 
 [סטטיק & עדן חסון - אוי ואבוי](https://www.youtube.com/watch?v=4X0XpX2RXks
 ) 
