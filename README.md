@@ -46,6 +46,10 @@
 
 [איב אנד ליר - מאמי באלי](https://www.youtube.com/watch?v=CPF8OUF3dG4 )
 
+
+
+[ Eve And Lear - Kazanova Doda Tova](https://www.youtube.com/watch?v=iIE267YyI44)
+
 [עדן בן זקן - הגענו הבנות](https://www.youtube.com/watch?v=MbfNHvxwu_c)
 
 [עדן בן זקן - חמסה ](https://www.youtube.com/watch?v=b3QTszIIMJs)
