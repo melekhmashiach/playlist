@@ -96,6 +96,8 @@
 
 [ The Red Army Choir Alexandrov - Kalinka](https://www.youtube.com/watch?v=oCc7ySI9YMw)
 
+[ עדן חסון - מחרוזת עם ישראל](https://www.youtube.com/watch?v=GwEm2r9sZpE)
+
 
 [space.gov](https://www.youtube.com/@TeamSpaceIL)
 
