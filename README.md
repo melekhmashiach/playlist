@@ -23,6 +23,8 @@
 
 [Kuzu Kuzu](https://www.youtube.com/watch?v=NAHRpEqgcL4) 
 
+[ İsyankar](https://www.youtube.com/watch?v=Nb4G-O1LHhc)
+
 ......
 
 
