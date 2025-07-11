@@ -94,6 +94,8 @@
 
 .....
 
+[ The Red Army Choir Alexandrov - Kalinka](https://www.youtube.com/watch?v=oCc7ySI9YMw)
+
 
 [space.gov](https://www.youtube.com/@TeamSpaceIL)
 
