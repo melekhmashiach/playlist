@@ -120,6 +120,12 @@
 
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
 
+
+[אריסה עם שרית חדד - קרקס ](https://www.youtube.com/watch?v=CcWGhp667mk)
+
+[ נסרין x עופר ניסים](https://www.youtube.com/watch?v=D1ZfrQ-iDuM)
+
+
 [Mental Powers](https://www.youtube.com/watch?v=f_Rq20mwd7U)
 
 [Kölsch - Grey](https://www.youtube.com/watch?v=mVM8D0BQLyY)
