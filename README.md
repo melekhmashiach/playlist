@@ -95,6 +95,11 @@
 
 [Static and Ben El & Israel Bidur - Hanukkah](https://www.youtube.com/watch?v=P_mo8YCUEgw )
 
+
+
+ [Noa Kirel - Like What You See](https://www.youtube.com/watch?v=_dpNA4LOv14)
+
+
 .....
 
 [ The Red Army Choir Alexandrov - Kalinka](https://www.youtube.com/watch?v=oCc7ySI9YMw)
