@@ -65,7 +65,10 @@
 ) 
 
 [עדן חסון - מטפסים על הקירות](https://www.youtube.com/watch?v=L2UV08m0DqY)
- 
+
+
+[ עדן חסון - טוב לי ורע לי](https://www.youtube.com/watch?v=5mCDA-TmeAY) 
+
  [שחר סאול - דובשנייה מארח את אגם בוחבוט ונורוז](https://www.youtube.com/watch?v=0aoNAe3BhAg)
 
 [איזי - גֻּושְׁפַּנְקָא](https://www.youtube.com/watch?v=o8ArEYZ9G4Y)
