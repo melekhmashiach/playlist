@@ -108,7 +108,7 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 [Static and Ben El & Israel Bidur - Hanukkah](https://www.youtube.com/watch?v=P_mo8YCUEgw )
 
-
+[Tsvetina - Diamant](https://www.youtube.com/watch?v=X8-P5OYKVH0 )
 
  [Noa Kirel - Like What You See](https://www.youtube.com/watch?v=_dpNA4LOv14)
 
