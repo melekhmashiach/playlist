@@ -39,6 +39,8 @@
 
 [Yalla](https://www.youtube.com/watch?v=i7wveOu5hkQ)
 
+[שרית חדד - היית איתה ](https://www.youtube.com/watch?v=jWwjhxbVkNg)
+
 [Jalebi Baby](https://www.youtube.com/watch?v=IFtwhMK64H8)
 
 [Bad Boys](https://www.youtube.com/watch?v=6ttobrfMnyQ)
