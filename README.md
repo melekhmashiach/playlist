@@ -132,7 +132,8 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
-
+ 
+  [רינת בר - מחרוזת למה לא](https://www.youtube.com/watch?v=5Ac4_6nFZ2M )
 
 [אריסה עם שרית חדד - קרקס ](https://www.youtube.com/watch?v=CcWGhp667mk)
 
