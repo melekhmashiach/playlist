@@ -121,6 +121,13 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 [ Michoel Pruzansky Simchat Chatanim Official music video
 ](https://www.youtube.com/watch?v=uu67YW2mEHI)
 
+[ STREET SHOFAR NYC
+](https://www.youtube.com/watch?v=R9OrWMSMKXg)
+
+[ STREET SHOFAR ISRAEL
+](https://www.youtube.com/watch?v=awATvJ9LK9o)
+
+
 [ Red Army Choir Alexandrov
 ](https://www.youtube.com/@RedArmyChoirAlexandrov/videos)
 
