@@ -118,6 +118,9 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 .....
 
+[ Michoel Pruzansky Simchat Chatanim Official music video
+](https://www.youtube.com/watch?v=uu67YW2mEHI)
+
 [ Red Army Choir Alexandrov
 ](https://www.youtube.com/@RedArmyChoirAlexandrov/videos)
 
