@@ -148,6 +148,9 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 
 
+
+[David Guetta Permanence](https://www.youtube.com/watch?v=Xm5wz96c7Ec)  
+
 [ David Guetta & MORTEN - Permanence (Music Video)
 ](https://www.youtube.com/watch?v=U33VOkH-iOs)
 
