@@ -156,6 +156,8 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 .....
 
+[ David Guetta & Sia - Beautiful People (Official Video)
+](https://www.youtube.com/watch?v=S2fSojJqyNY)
 
 [סופרסטאר](https://www.youtube.com/watch?v=1oeubF55EOA)
  
