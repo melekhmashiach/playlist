@@ -124,6 +124,8 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 
 [TSVETELINA YANEVA & RIDA AL ABDULLAH - BROY ME / Цветелина Янева - Брой ме | Official video 2011](https://www.youtube.com/watch?v=J1E9A3YX-EU) 
 
+ [איתי לוי - יש לי יום הולדת](https://www.youtube.com/watch?v=pl1wawr3ff8)
+
 
 [ Michoel Pruzansky Simchat Chatanim Official music video
 ](https://www.youtube.com/watch?v=uu67YW2mEHI)
