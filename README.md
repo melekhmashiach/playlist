@@ -109,6 +109,9 @@ https://www.youtube.com/watch?v=BYCndeezaTs
 [שרית חדד - מאחלת לך - Sarit Hadad - I'm wishing you](https://www.youtube.com/watch?v=7QkhkMRWb28)
 
 
+[ליאור נרקיס & איתי לוי & VIVO - מסיבת רווקים - קליפ רשמי](https://www.youtube.com/watch?v=8fpFQQ3Xlmw )
+
+
 [Static and Ben El & Israel Bidur - Hanukkah](https://www.youtube.com/watch?v=P_mo8YCUEgw )
 
 [Tsvetina - Diamant](https://www.youtube.com/watch?v=X8-P5OYKVH0 )
